@@ -31,7 +31,7 @@ This is an extension to Googling, but as I was looking through some sites that m
 
 #### Time mangement 
 
-While I was working on the blog, I realized that the blog would take more time than usual work. For most of my homework, I would wait untill  6 or 7:00 pm (No refrence to this)  do it and finish it, preferring to use that time to play video games or look up history or chemistry topics. Not only that, but living far from my school doesnt give me a lot of time to work at it at home as i get home at around 4 pm by taking the school bus.  But in the case of the blog, I realized that process wouldnt work. So I started my homework sooner, at around 5:00 pm and on my bus ride, I made sure to do some thanks to a hotspot to further speed up my progress. By the time it was Sunday, the Blog was completly finished and with much time to spare.
+For most of my homework, I would wait untill  6 or 7:00 pm (No refrence to this)  do it and finish it, preferring to use that time to play video games or look up  my passions in history or chemistry topics.  But in the case of the blog, I realized that process wouldnt work. So I started my homework sooner, at around 5:00 pm and made sure to do some everyday. By the time it was Sunday, the Blog was completly finished and with much time to spare.
 
 ## Next Steps
 
