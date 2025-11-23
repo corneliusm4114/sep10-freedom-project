@@ -18,11 +18,11 @@ Right Now, I am in the first phase of the Enginnering Design Process, which is t
 
 
 
-##Skils I've Learned 
+## Skils I've Learned 
 
 
 
-##Next Steps
+## Next Steps
 
 Nevertheless, I'm excited to look more into Millitary tech and its impacts. It feels nice knowing that I've found a topic that suits two passions in one!
 
