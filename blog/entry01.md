@@ -38,6 +38,9 @@ For most of my homework, I would wait untill  6 or 7:00 pm (No refrence to this)
 Nevertheless, I'm excited to look more into Millitary tech and its impacts. It feels nice knowing that I've found a topic that suits two passions in one!
 
 
+[Link](https://github.com/corneliusm4114/sep10-freedom-project/blob/main/blog/entry01.md) 
+
+
 
 
 
