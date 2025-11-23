@@ -10,7 +10,7 @@ The topic that I selected for the year long Freedom Project is Millitary and its
 
 #### Research
 
-To kickstart the research, some websites I looked into was 
+To kickstart the research, some websites I looked into was ["Timeline: Weapons technology"](https://www.army.mil/article/242136/army_scientists_pick_top_10_coolest_advances_of_2020) and ["Army scientists pick top 10 coolest advances of 2020"](https://www.newscientist.com/article/dn17423-timeline-weapons-technology/). These two sites were for introducing the aspects of Millitary Techoloigy while relating to my other topic of History and Sciences. One site that I did find particulary helpful in understanding Milltary Techology impacts was ["Technology and the Nature of War"](https://www.mca-marines.org/gazette/technology-and-the-nature-of-war/) As it gave real life examples of how Millitary and its Techology are interconnected with each other to form real life stratiges. Another site that was pretty useful was ["Rise of the war machines: What drove the evolution of military technologies?"](https://bigthink.com/the-past/military-technologies-evolution-turchin/) as it gives a short and simple reason of what drives Millitary growth by a acclaimed Russian anthropologist, Peter Turchin. By using these sites it only made me more interested in learing Millitary Techologiy. 
 
 ## EDP (Enginnering Design Process)
 
@@ -19,6 +19,18 @@ Right Now, I am in the first phase of the Enginnering Design Process, which is t
 
 
 ## Skils I've Learned 
+Some skills i've learning while working on the blog was **Googling** and  **skimming and Time Management** 
+
+#### My Process for Googling
+
+Now before even looking at the sites, something I also had to realize was, what did i need to Goggle? 
+
+#### Skimming  Time Management Process
+
+This is an extension to Googling, but as I was looking through some sites that matched my topic. Some of these articles or websites were long. Like **_really really long_**. 
+
+#### Time mangement 
+
 
 
 
