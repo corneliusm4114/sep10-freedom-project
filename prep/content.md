@@ -7,7 +7,7 @@ Topic: **Milltary**
 
 ## Part A: existing technology
 * Command Vehicle
-  * Command Vehicle, like the M577 and more Modern ones like the Styrker 
+  * Command Vehicles, like the M577 and more Modern ones like the Styrker  
   * [image text](image URL)
 
 ## Part B: possible future technology
